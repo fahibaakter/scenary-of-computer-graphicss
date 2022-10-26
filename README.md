@@ -1,0 +1,1 @@
+# scenary-of-computer-graphicss
